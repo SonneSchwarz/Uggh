@@ -1,3 +1,0 @@
-# Uggh
-More uuuughh
-Мазе
